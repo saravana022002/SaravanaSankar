@@ -19,7 +19,7 @@ Welcome to my Profile.
 
 #### Who I am 🤔 ?
 
-I am a student currently studying in Govt college of Engineering,tirunelveli  !
+I am currently working in Facilio Technology Solutions as a Software Developer  !
 
 #### What I done 🤔 ?
 
